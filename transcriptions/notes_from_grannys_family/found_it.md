@@ -1,0 +1,3 @@
+Naomi,
+Found it! There is so much more info on the internet if we know how to ask for it. Old graveyard was one of 10 the town of Moneymore was offering on contract for maintenance and mowing. Sketch was part of the offering on statement of work. With that drawing I was able to map it to the area N. of Balleyeglish Rd. White Square [Indicates this location: https://www.google.com/maps/@54.6930803,-6.6121925,318a,35y,357.59h/data=!3m1!1e3 -dsp] (I put there) marks what appears to be a grove of trees around the graveyard. You can see it on your image #2 I sent earlier.
+    Cemetery is still maintained as evidenced by the contract offer from Moneymore Council and I found a picture of the road sign indicating "Ballyeglish" [...cut off]
